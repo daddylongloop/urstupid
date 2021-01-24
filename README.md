@@ -1,0 +1,2 @@
+# urstupid
+calls you stupid
